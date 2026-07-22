@@ -1,0 +1,1 @@
+C:/Users/Pires Family/Desktop/atomata_b/AGENTS.md
